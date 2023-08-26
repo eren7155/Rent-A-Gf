@@ -1,5 +1,5 @@
 
-# Hi, I'm EREN (This Is Not My Original Name, This Is My Github Name)! 👋
+# Hi, I'm EREN ! 👋
 
 
 ## 🚀 About Me
@@ -38,7 +38,7 @@ Don't Take This Seriously.
 - Used As Prank Website
 - All Things Used In Website Is Under Fair Use
 - Socials Of Website Is Dummy Social, It Only Exist No One Used This So Don't Try To Contact There For Website, But If You Have Any query Or Takedown request, You Can Contact There. Our Team Will Contact There As soon As Possible.
-- Don't Copy The Code Or Projects Because If You Do We'll Take Legal Against You
+- Don't Copy The Code Or Projects Because If You Do We'll Take Legal Action Against You
 - Don't Use As School Or College Project Because It Can Offend Anyone.
 - Don't Do Any Transcation On The Website Because the Payment Page Is Dummy Page.
 - If You Do Any Transcation On Website , No Worries Because No Money Is Deducted From Your Account.
