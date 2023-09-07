@@ -53,7 +53,7 @@ Don't Take This Seriously.
 
 ## Support
 
-For support, email contact.rentagirlfriend@gmail.com or join on Our Socials.
+For Support, email contact.rentagirlfriend@gmail.com or join on Our Socials.
 
 
 ## Feedback
