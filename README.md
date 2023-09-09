@@ -58,4 +58,4 @@ For Support, email contact.rentagirlfriend@gmail.com or join on Our Socials.
 
 ## Feedback
 
-If you have any feedback, please reach out to us at contact.rentagirlfriend@gmail.com
+If you have any Feedback, please reach out to us at contact.rentagirlfriend@gmail.com
